@@ -8,3 +8,5 @@ Hello here is my link to CS 131 Presentation project (Rayvon Billups) https://yo
 
 Hello everyone, here is the link to my presentation (Luca Archenault). I'll also try to add the powerpoint somewhere.
 https://www.youtube.com/watch?v=M1Om2r3ghLA
+
+Omar Monge's Presentation!! https://youtu.be/Kiv0gVTirbs(long 30+) https://youtu.be/PqgtHCmaqN8(fast)
